@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @moinmoinde1
 - 🇩🇪 Languages :
-German  : Good
+German  : Good, and best
 Russia  : Not good
-English : Not god
+English : Not good
 - 📫 How to reach me :
 Discord  : moinmoin_de#6616
 Telegram : moinmoin_de (t.me/moinmoin_de)
